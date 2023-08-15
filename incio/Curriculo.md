@@ -9,7 +9,7 @@ Quinta Avenida, Quadra QB24 Lote 2B, Mansões Por do Sol, Águas Lindas de Goiá
 
 #### Telefone: (61) 9-9433-1556
 
-#### E-mail: pedrohenriquematiassanta@gmail.com
+#### E-mail: pedrohenriquematiassantana@gmail.com
 ---
 ## Formação
  * Ensino Médio (Cursando)
